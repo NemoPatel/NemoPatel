@@ -7,11 +7,11 @@
 
 - 📫 How to reach me **nirmit1752003@gmail.com**
 
-- ⚡ Fun fact **I am 7 Handicap golfer and I started play golf years and a half ago**
+- ⚡ Fun fact **I am a 7 Handicap golfer and I started play golf year and a half ago**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
-<a href="https://linkedin.com/in/nirmit patel" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="nirmit patel" height="30" width="40" /></a>
+<a href="[https://linkedin.com/in/nirmit patel](https://www.linkedin.com/in/nirmit-patel-16642a1b1/)" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="nirmit patel" height="30" width="40" /></a>
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
