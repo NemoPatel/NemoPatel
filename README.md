@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **nirmit1752003@gmail.com**
 
-- ⚡ Fun fact **I am a 7 Handicap golfer and I started to play golf year and a half ago**
+- ⚡ Fun fact **I am a 4.8 Handicap golfer and I started to play golf year and a half ago**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
